@@ -1,0 +1,1 @@
+Tailored Bites is a personalized meal delivery platform designed for individuals with chronic conditions and dietary restrictions, offering culturally authentic, medically approved meals. It partners with dietitians and local restaurants to provide convenient, transparent, and health-focused food solutions.
